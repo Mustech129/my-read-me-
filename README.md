@@ -31,7 +31,7 @@
 
 ## 💬 Let’s Connect
 - TikTok: [@mustech](https://tiktok.com/@mustech04)
-- GitHub: [github.com/mustech](https://github.com/mustech)
+- GitHub: [github.com/mustech](https://github.com/mustech129)
 
 ---
 
